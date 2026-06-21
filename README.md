@@ -15,6 +15,7 @@ Don't worry! If you want to deeply experience the leisurely charm and vibrant en
 ### 自由随心，拒绝打卡式旅游：
   想去宽窄巷子吃顿火锅，下一秒又想驱车去青城山呼吸新鲜空气？包车让你的行程完全由你做主，拒绝走马观花，真正体验“慢成都”的魅力。
 ### Total Freedom, No More Check‑list Tourism:
+  Feel like having hotpot at Kuanzhai Alley one moment, then heading to Qingcheng Mountain for fresh air the next? With a private car, your itinerary is entirely up to you. Say goodbye to rushed sightseeing and truly experience the "slow Chengdu" lifestyle.
 
 ### 舒适便捷，省心省力：
   无论是家庭出游还是朋友结伴，宽敞舒适的专属空间，再也不用担心行李没处放、座位不够坐。专业司机带队，告别晕车和迷路的焦虑，把精力全部留给欣赏风景。
