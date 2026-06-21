@@ -26,3 +26,52 @@ Don't worry! If you want to deeply experience the leisurely charm and vibrant en
   选择正规专业的租车公司，车辆定期保养，司机经验丰富且熟悉当地路况，为你的每一次出行保驾护航。 
 ### Safety & Reliability, Quality Guaranteed:
 Choose a reputable rental company with regularly maintained vehicles and experienced drivers who know local roads well. Your safety is our top priority.
+## 🚗 丰富车型，满足多元需求
+无论您是独自出行、家庭出游还是团队团建，我们都有适合您的选择：
+### 商务精英之选：5 座奥迪 A6 / 奔驰 E 级，仅需 600 元 / 天，舒适大气，彰显品位
+### 家庭出游首选：7 座别克 GL8 / 腾势 D9，750 元 / 天起，宽敞空间，全家共享
+### 高端尊享体验：岚图梦想家 / 奔驰威霆，750-1000 元 / 天，奢华内饰，极致舒适
+### 中型团队出行：9 座保姆车 / 奔驰 V260，1000 元 / 天，灵活便捷，商务休闲两相宜
+### 中巴团队方案：12-28 座多种车型可选，800-1200 元 / 天，满足不同规模团队需求
+### 大巴团队方案：30-55 座旅游大巴，1200-1800 元 / 天，大型团体出行无忧
+### 经典考斯特系列：丰田考斯特 12-15 座，1500-1600 元 / 天，品质之选，值得信赖
+
+## 🚗 Diverse Fleet to Meet All Your Needs
+Whether you're traveling alone, with family, or on a team outing, we have the perfect option for you:
+### Business Elite Choice: 5-seat Audi A6 / Mercedes E-Class, only ¥600/day — comfortable and impressive
+### Family Travel Favorite: 7-seat Buick GL8 / Denza D9, starting from ¥750/day — spacious for the whole family
+### Premium Luxury Experience: Voyah Dreamer / Mercedes Vito, ¥750-1000/day — luxurious interior, ultimate comfort
+### Medium Group Travel: 9-seat nanny van / Mercedes V260, ¥1000/day — flexible and convenient for business or leisure
+### Midibus Solutions: 12-28 seat options available, ¥800-1200/day — for groups of various sizes
+### Coach Solutions: 30-55 seat tourist coaches, ¥1200-1800/day — worry-free travel for large groups
+### Classic Coaster Series: Toyota Coaster 12-15 seats, ¥1500-1600/day — a quality choice you can trust
+
+
+## 💰 价格透明，无隐形消费
+以上报价均包含司机服务，成都市区内 100 公里、10 小时使用时长，价格透明，绝无隐形消费。
+我们承诺：一口价，不绕路，不宰客，让您明明白白消费，开开心心旅行。
+## 💰 Transparent Pricing, No Hidden Fees
+All prices above include driver service, covering 100 kilometers and 10 hours within Chengdu city limits. Transparent pricing with absolutely no hidden costs. 
+We promise: one fixed price, no detours, no overcharging — so you can travel with peace of mind.
+
+## 🌟 为什么选择我们？
+✅ 车型齐全：从 5 座轿车到 55 座大巴，总有一款适合您
+✅ 价格公道：明码标价，性价比高
+✅ 服务专业：多年行业经验，口碑保障
+✅ 随叫随到：灵活调度，满足您的个性化需求
+✅ 安全放心：正规公司运营，保险齐全
+无论是机场接送、市区游览、周边包车还是长途出行，成都易迪通租车都能为您提供贴心、专业、安全的包车服务。
+欢迎来到成都洽谈！让我们一起，开启一段美好的成都之旅。
+## 🌟 Why Choose Us?
+✅ Complete Fleet: From 5-seat sedans to 55-seat coaches, we have what you need
+✅ Fair Prices: Clear pricing, great value for money
+✅ Professional Service: Years of industry experience, proven reputation
+✅ On-Demand Service: Flexible scheduling to meet your personalized needs
+✅ Safe & Reliable: Legitimate company operation, comprehensive insurance coverage
+Whether it's airport transfers, city tours, surrounding area charters, or long-distance travel, Chengdu Yidi Car Rental provides thoughtful, professional, and safe charter services.
+Welcome to Chengdu for business discussions! Let's embark on a wonderful journey in Chengdu together.
+
+## 📞 如何预订？
+成都易迪通租车公司: 13668197274
+## 📞 How to Book?
+Chengdu Yiditong Car Rental Co., Ltd：13668197274
